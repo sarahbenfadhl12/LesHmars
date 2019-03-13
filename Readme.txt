@@ -1,5 +1,6 @@
-<<<<<<< HEAD
-<<<<<<< HEAD
+Eh mais niquez vous, et cliquez cliquez bande de salopes !!!
+Signé Matthieu-sensei
+=======
 J'encule Matthieu-Sama ce boloss.
 Cordialement .. Sarah..
 =======
